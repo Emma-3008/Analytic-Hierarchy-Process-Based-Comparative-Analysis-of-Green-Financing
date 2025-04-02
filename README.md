@@ -63,7 +63,7 @@ Table XI: Summary of Alternatives and Overall Priorities ranked
 
 
 
-# RECOMMENDATION
+# Recommendation
 This suggests that strong policies and a finance framework are necessary for promoting sustainable development. The study also highlighted the importance of strict adherence to green policies and regulations in driving other factors such as finance and project selection. The findings offer practical implications for policymakers and stakeholders in promoting sustainable development through effective green financing strategies. The research provides valuable insights for policymakers and financial institutions involved in green financing practices.
 
 # Thank you
